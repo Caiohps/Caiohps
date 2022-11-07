@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi everyone 👋
 
 <div>
   <a href="https://github.com/Caiohps">
